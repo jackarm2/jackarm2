@@ -1,8 +1,8 @@
-hello honey are you doing dear- 👋 Hi, I’m @jackarm2
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 Hi, I’m @jackarm2 hello everyone
+- 👀 I’m interested in ...friends and job
+- 🌱 I’m currently learning ...filling tax 
+- 💞️ I’m looking to collaborate on ...tax refund and job
+- 📫 How to reach me ...smit2220k@gmail.com google chat
 
 <!---
 jackarm2/jackarm2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
